@@ -48,4 +48,4 @@
 - Se desejar, você pode incluir questionários, pesquisas ou materiais complementares.
 
 Certifique-se de que o seu trabalho seja bem fundamentado, baseado em fontes confiáveis e que inclua exemplos e histórias relevantes. Além disso, promova a conscientização sobre o bullying e incentive ações positivas para combater esse problema nas escolas e na sociedade em geral.
-![img]([https://bebemamae.com/wp-content/uploads/2020/08/menino-bullying-mae2-1200x675.jpg)
+![]([https://bebemamae.com/wp-content/uploads/2020/08/menino-bullying-mae2-1200x675.jpg)
