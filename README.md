@@ -48,4 +48,5 @@
 - Se desejar, você pode incluir questionários, pesquisas ou materiais complementares.
 
 Certifique-se de que o seu trabalho seja bem fundamentado, baseado em fontes confiáveis e que inclua exemplos e histórias relevantes. Além disso, promova a conscientização sobre o bullying e incentive ações positivas para combater esse problema nas escolas e na sociedade em geral.
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.ubatuba.sp.gov.br%2Fnoticias%2Fcampanha-contra-bullying%2F&psig=AOvVaw0jM6e8ecmHZAknJSNxFdXL&ust=1698321444416000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCMjqx8WSkYIDFQAAAAAdAAAAABAJ)
+
+   ![](https://w7.pngwing.com/pngs/1007/910/png-transparent-school-bullying-school-bullying-social-bullying-bully-proofing-your-child-behavior-child-hand-friendship-thumbnail.png)
